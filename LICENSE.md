@@ -1,4 +1,4 @@
-# 
+# Get the ultimate JetBrains Rider for PC | JetBrains Rider for Windows helper with elite JetBrains Rider for PC | JetBrains Rider for Windows Helper | version-control-integration +
 
 
 
